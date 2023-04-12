@@ -1,1 +1,1 @@
-this folder might not work as a folder in that can contact me
+this folder might not work as a project in that contact me
